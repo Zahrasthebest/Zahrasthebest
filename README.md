@@ -2,7 +2,7 @@
 - 👀 I’m interested in engineering and I like coding for fun!
 - 🌱 I’m currently learning Swift, Java, and Python
 - 💞️ I’m looking to collaborate on any code! I am open to learning from you all.
-- 📫 How to reach me discord (zizi.14) or my email!
+- 📫 How to reach me discord dms is best (zizi.14)
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I'm big into indie music
 
